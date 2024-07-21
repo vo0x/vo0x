@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @1ns8
 - 👀 I’m interested in programming and cybersecurity in general
 
-- 📫 How to reach me my instagram : v.o0x_, my discord: v.o0x, my telegram : v_o0x
+
 
 - ⚡ Fun fact: iam also a calisthenics athlet
 
